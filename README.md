@@ -1,1 +1,1 @@
-# VI-Semester-2021-22--Colloguium-RCA661-Industrial-Project-RCA-662-
+# VI-Semester-2021-22--Colloquium-RCA661-Industrial-Project-RCA-662-
